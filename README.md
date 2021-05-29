@@ -1,4 +1,4 @@
-I'm now working on a **Growth Mindset**
+I'm now working on a **Growth Mindset** <br>
 All thanks to **ALX** for this Life Changing Great Opportunites.
 <hr>
 It's indeed a blessing to me.
